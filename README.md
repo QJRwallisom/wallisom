@@ -8,4 +8,4 @@
 
 00001133861726sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/clown-gif-18656416)
+![](https://media1.tenor.com/m/j_wj1eVq16AAAAAC/clown.gif)
